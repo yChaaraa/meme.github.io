@@ -1,1 +1,1 @@
-# https://meme.github.io
+# https://memes.github.io
